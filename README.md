@@ -70,7 +70,7 @@ Y型结构用于将牙线一直撑直, 需要适应使用习惯.
 **牙线**
 
 OralB欧乐B扁牙线 舒适/劲爽<br/>
-扁线比细线扁, 更顺滑
+扁线比细线扁, 更顺滑. 学习成本比牙线棒高.
 
 <img align="left" width="100" src="/asset/2024-08-30_17-04-36.webp">
 
@@ -262,7 +262,7 @@ takagi 花洒<br/>
 **鞋拔子**
 
 宜家鞋拔子
-金属, 耐用
+金属, 耐用.
 
 <img align="left" width="100" src="/asset/2024-10-16_17-01-02.webp">
 
@@ -443,6 +443,7 @@ SAGE 切菜板<br/>
 ---
 
 双枪纹理合金筷
+比起木筷, 竹筷, 塑料筷更不容易发霉变形.
 
 <img align="left" width="100" src="/asset/2024-08-30_16-30-45.webp">
 
@@ -475,6 +476,7 @@ ASVEL 调味罐<br/>
 ---
 
 康宁晶彩/晶钻锅
+透明锅, 煲汤/炖煮不用开盖看火候.
 
 <img align="left" width="100" src="/asset/2024-08-30_16-40-29.webp">
 
@@ -498,7 +500,7 @@ ASVEL 调味罐<br/>
 **保温杯**
 
 虎牌梦重力不锈钢保温杯 MMJ 系列<br/>
-全身可拆 (MMJ-A48C-XCX480ml/MMJ/A36C-WM360ml), 单手开合盖.
+重量轻, 全身可拆, 单手可开合盖.
 
 <img align="left" width="100" src="/asset/2024-08-30_16-48-26.webp">
 
@@ -544,6 +546,16 @@ ASVEL 调味罐<br/>
 
 ---
 
+虎牌 保温壶
+
+<img align="left" width="100" src="/asset/2026-02-25_20-22.jpg">
+
+[虎牌（TIGER）保温壶 304不锈钢时尚保温/保冷壶PWO-A20C-W 白色 2L](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAT4JK1olXDYCVV9cCU8XBGYOElMlGVlaCgFtUQ5SQi0DBUVNGFJeSwUIFxlJX3EIGloUXAICU1dbAUMIWipURlVRAl5cCyIJXRNHZj9eF1h7XGgCZBZVbjBsBAwKeB1nJgJyFTcoXz5xZh8EF2sUbQUDVl1eCkIfBGs4K1sSbVBsVF9cCUoRBW8JH2sUbQYEUl1cC0gUA2sLHVMlWgYLZAUIZk9DCmsJHglGXg8ABwltOHsUM2gIEk8TL0dQQFgvOHsXM2w4G1oVXAEBUV1bAUsLA24MGV0VQQYEUl1cC0sfC2YPHVglXwcDUFdtOJWasx8MQRB0Ln5fCxoqCjJ2XW3WlusEL3YCVlxdGXtjBh9hRx1TWk0CD1whUBtoaBB9GSJ9CAJsVj8tSE92CxhVUA4TVHxrDQQCOE4nBG8AHGs)
+
+￥237
+
+---
+
 **吹风机**
 
 徕芬SE高速吹风机
@@ -583,7 +595,7 @@ ASVEL 调味罐<br/>
 **电脑桌面音箱**
 
 创新 Creative Pebble V2<br/>
-无源音箱, 小巧圆润
+无源音箱, 小巧圆润.
 
 <img align="left" width="100" src="/asset/2024-10-21_09-26-57.webp">
 
