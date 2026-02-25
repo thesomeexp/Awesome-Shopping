@@ -556,6 +556,17 @@ ASVEL 调味罐<br/>
 
 ---
 
+图拉斯 手机壳<br/>
+主要都是亚克力透明硬壳. 经久耐用不发黄.
+
+<img align="left" width="100" src="/asset/2026-02-25_16-34.jpg">
+
+[图拉斯【久用不易发黄】适用苹果16手机壳iPhone 16保护套镜头全包](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BATMJK1olXwYGUlpYC00fBl8IGloVVA4FXF5cAUwnRzBQRQQlBENHFRxWFlVPRjtUBABAQlRcCEBdCUoXCmcPE1sUVAEdDRsBVXtxWGZ2GiFLPWZGEDoYVQoTUAdNbDtlUQoyVW5eCUkUAG0BE1wRbTYCU24LZksWAm4NGVsWWgYyVW5dDk0UAm4BGV8cWA8KZFldAXtMVgEMT1IRXANQB11UChhAM184GGsSXQ8WUiwcWl8RcV84G2sWbQYDVF9ZDU4QA2wJB1sWXAUCUEJdDk0UAm4BGV4TXgUEZFxcCU8eM1_WlutiXgFxLywJfShuV2xDfQtKg4uyRSwtCE8WBX44TQVwKWJ0CCxdW04fQx9ufT9AX0V3Aj8tZklfRyZuYAdPIQZiMCJdTzgRa18NK1MdVAAy)
+
+￥48
+
+---
+
 **有线耳机**
 
 苹果 EarPods 有线耳机<br/>
