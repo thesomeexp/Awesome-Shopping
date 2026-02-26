@@ -199,7 +199,7 @@ IKEA宜家BRUKSVARA布瓦拉人体工学枕记忆海绵枕护颈椎助睡眠枕�
 罗莱家纺 床垫床褥<br/>
 通常床垫太厚不好机洗, 直接睡在床笠上又不太舒服, 毛毯垫子又容易移位, 而叫床垫床褥的东西就刚刚好.
 
-<img align="left" width="100" src="/asset/2025-04-16_12-12.jpg">
+<img align="left" width="100" src="/asset/2025-04-16_12-12.webp">
 
 [罗莱家纺 床垫床褥抗菌防螨单双人床上用品床垫 灰色](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BATUJK1olXQABVFhUDkIXAV8IGloUVAUDUFtcCEInRzBQRQQlBENHFRxWFlVPRjtUBABAQlRcCEBdCUoWCmwJH14UXQ8dDRsBVXtJBgZwZgtJPmZBIicEXjFtVgpDfgxlUQoyVW5eCUkUAG0BE1wRbTYCU24fZp2bpba3m4-K2tCJ311cCEInAl8IHV4QWwAFU1tZAEweM2gIEmtOCGgGAFdZCU5FUGwBGQhCbTYyV25aCEIDBR1JSU8TLzYyVG5eOEsWA2YBElkXWAQASF5eCk0XA3MIHV4QWwAFU1xeDk4UM20JGl8cbTbc2e41DDlAaG1VeR1UX0NnHS0v1sanEh14G1kXXRcyKjoZbiAWQTF-bQwWPURGPx1ccxcSeT0JdVl2OGBdVwM1bD1TfS9BTVkdCTYHZG4)
 
@@ -212,7 +212,7 @@ IKEA宜家BRUKSVARA布瓦拉人体工学枕记忆海绵枕护颈椎助睡眠枕�
 午憩宝 躺椅<br/>
 想像沙发那样躺着靠头玩游戏, 不过很多电脑椅都可以实现, 但是折叠功能能让你很好的迁移. 缺点是高度无法调节, 扶手是铁的还是有点冰冷. 
 
-<img align="left" width="100" src="/asset/2025-04-16_13-49.jpg">
+<img align="left" width="100" src="/asset/2025-04-16_13-49.webp">
 
 [午憩宝 躺椅折叠床简易午休午睡床便携医院陪护家用电脑椅宿舍阳台椅子](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAS8JK1olXQYFVl1fAUIUB18IGloWXg8LV15aDk4RBl9MRANLAjZbERscSkAJHTdNTwcKBlMdBgABFksWAmwLElIWXQEEUVhYFxJSXzI4biN-XFMHKQE_bDFEAQ8WWgZ-KHVqNFJROEonAG4KGFgXVA4FUG5tCEwnQgEPGl4UXwEyVW5dDk4SBWYLE1kRVAYLZFldAXtMVgEMT1IRXANQB11UChhAM184GGsSXQ8WUiwcWl8RcV84G2sWbQYDVFZeDUwVBWYIB1sQXAIHUEJdDk4SBWYLGFwUWAAHZFxcCU8eM1_WlutgWUJ-Klk8SzEfZA0MZiBug4uyRSIqCkkfAn44bDBjCFR-LDsqax5uWS9TGV4QL3UDPFxaZklwcAZ8YB5xDnFSDQ4qCzFLcF8NK2s)
 
@@ -238,7 +238,7 @@ takagi 花洒<br/>
 康亨防摔蚊<br/>
 我妈说蚊帐侧边底部有布条就不怕手臂靠着被蚊子咬, 缺点是拆装麻烦.
 
-<img align="left" width="100" src="/asset/2025-04-17_12-10-31.jpg">
+<img align="left" width="100" src="/asset/2025-04-17_12-10-31.webp">
 
 [康亨防摔蚊帐儿童婴儿宝宝坐床回底家用2025新款卧室防止掉床纹帐](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BATMJK1olXwQBXFddD0IUAF8IGloSVQILUFtZCEIRBl9MRANLAjZbERscSkAJHTdNTwcKBlMdBgABFksWAmgAH1IRWAICXVhYFxJSXzI4b11IGkRECjc9bEh3Vy94cDBLXVpEJFJROEonAG4KGFgXVA4FUG5tCEwnQgELHVwcXDYDZF5bDksfCmYJGlMSXgIyU15UOBBCbWtcEl8UWFRRV1dfWxwnM18LK1wVVBIEJh8PHE1lM18IK1glXQcCVVpaDE4UBG8UG1oWWw4FSF5bDksfCmYJGlgXVQ4yVl9cDEInM7GGjykTGwB2UiFdADBiUTQLbwvL05ITJi5dCkkXEl9AWDtoDwYLIxgZChN3ey92bS1MBkNJVSwzCh1OfTtvbghyG3ZmXDYKS08RM2o4GV4SWwIy)
 
@@ -440,7 +440,7 @@ IKEA宜家SNOSKYFFEL斯诺许弗鞋拔子长柄家用鞋溜子提鞋器穿鞋神
 SAGE 切菜板<br/>
 按照自己厨房台面尺寸选购. 这是切菜板, 请不要拿来剁菜! 剁菜菜板另外选购.
 
-<img align="left" width="100" src="/asset/2026-02-25_13-48.jpg">
+<img align="left" width="100" src="/asset/2026-02-25_13-48.webp">
 
 [世廚（SAGE）美国进口抗菌砧板松木纤维切菜板大号擀面案板](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAUYJK1olXwQAVVxcAUoUBV8IGloUVQQCU1lZCUsnRzBQRQQlBENHFRxWFlVPRjtUBABAQlRcCEBdCUoWC20IHFwRXAYdDRsBVUVTXDdWRCdBCF5SMQ4LBEh5AgEIKzl-PBh0EgsOa05TZDJ_XwdrI3tLUz5RBHsWM2wJGVgWXw8KU1ptOEsQMzlmG1oUXAcKXFteDHsWM28OHVsdVQ4EVFlbCE8nBG8BKwBAMwJWXVpcDRlEAGYKSAwlbTYBZFldAV8RcS5aD11nbTYCZF1tCEoXAmYJGl4QWQ8eVF1UDUITH28OHVsdVQ4FVF5eC08nAW4JH1IlbdiP5C0pQzBjBRNeXl4VNWNAHyiDhfsGcQQIH14EbWYKPzokaR5Wdj9vcwx3X31wEx0jQDkVSAEKeS4TH1pSIF4oXhF-XiZ8aBMlWDYFVFZaOA)
 
