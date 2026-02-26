@@ -246,6 +246,20 @@ takagi 花洒<br/>
 
 ---
 
+**电蚊香液**
+
+雷达 电蚊香液<br/>
+不想挂蚊帐的时候就用它. 无香型没什么味道.
+
+<img align="left" width="100" src="/asset/2026-02-26_11-36.jpg">
+
+[雷达（Raid）(Raid) 电蚊香液 136晚2瓶装+无线加热器 无香型 防蚊液
+](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAS8JK1olXw4HUVhfDEoeBl8NHlgXWwcDZBoCUBVIMzZNXhpXVhgcDBsJVFRMVnBaRQcLWAMBVlhcCVRORjNVKw5xPQQCDR9daglpazZrXhhHWFBSJC5RBHsWM2wJGVgWXw8KU1ptOEsQMy1mz8SSio-2gdXA3_a31_CbK1olXQAEV19bDkseBG0AGGsSXQ8yDwszDB8eB24NSQgWVARRA25tOEgnBG8BD11nHFQWUixtOEsnAF8IGlsdXgYCVVdeD1cXBG8PHFMJXQAEV19bD0ISAWgNH2sXXAcGXW5t1sWDcW9DZSITHVtdLzUAWksWcLGGj0pnLQYGU1pMODB1UCd6GDt-K1l3L1c4Qxt_eB9SExBIPWhQLCAKXjIUfAh4c15uP1lZVT5tDXsXB2cJG2s)
+
+￥23.1/2瓶
+
+---
+
 **晴雨伞**
 
 天堂 太阳伞<br/>
