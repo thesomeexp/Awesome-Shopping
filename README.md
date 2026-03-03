@@ -1,7 +1,7 @@
 # Awesome-Shopping
 
 推荐好物(点击跳转): [衣物](#衣物), [个护健康](#个护健康), [居家日用](#居家日用), [收纳箱](#收纳箱), [厨具](#厨具), [家用电器](#家用电器)<br/>
-一般物品: [拖鞋](#拖鞋), [洗面奶](#洗面奶), [手持小风扇](#手持小风扇)
+一般物品: [拖鞋](#拖鞋), [洗面奶](#洗面奶), [手持小风扇](#手持小风扇), [避孕套](#避孕套)
 
 <div id="衣物"/>
 
@@ -735,5 +735,20 @@ Speedo 泳镜<br/>
 [几素高速节能手持小风扇usb迷你便携式折叠挂脖风扇轻音大风力轻音户外](https://uland.taobao.com/coupon/edetail?e=qtxpCM75r8%2BlhHvvyUNXZfh8CuWt5YH5OVuOuRD5gLJMmdsrkidbOWgpcJRl3wFwcV%2FlEyhmp8DQjENa3MwmoPaLYM7xdsEvAdZXOemSkCj3MwkpwxcWwnJMDd%2BKRYSDLpAatV6V7kpxwWxyDZyRNdgBE4XW2EqXaXOtHj5%2BtxsvR%2F1BNLrRCcLRW2d0xlmJICz0STAcMtvBtm88Mcs3uAUialgDtLo%2BQ9xUogD30tT2mzvc%2Bge7yPHD%2BxOfOoIknu1dh2WC27go6nIBvrmLTbcZelJt%2BzjyWp5c8lXghlnvsAIPzFMcVnB%2FC2wxfuZx%2BtoYm7Yk1smLz4BYa8%2Bd624XEKR%2BT0n3tVj9fvtxMzRVbrKqp4Yn8g%3D%3D&traceId=213e06ed17725543937686981e0f03&union_lens=lensId%3APUB%401772553844%40212b62b8_0e36_19cb4713830_d033%40026lV9euxmO01yRUHdjMda7Q%40eyJmbG9vcklkIjo4MDY3NCwiic3BtQiiI6Il9wb3J0YWxfdjJfcGFnZXNfcHJvbW9fZ29vZHNfaW5kZXhfaHRtIiiwiic3JjRmxvb3JJZCI6IjgwNjc0In0ie%3BtkScm%3AselectionPlaza_site_4358_0_0_0_3_1772553844864686960060%3Bscm%3A1007.30148.329090.pub_search-item_b7bcc2e1-b3be-4aad-a18a-1eb03fac379c_)
 
 ￥99
+
+---
+
+<div id="避孕套"/>
+
+**避孕套:**
+
+杜蕾斯 玻尿酸<br/>
+自带润滑液, 女性友好.
+
+<img align="left" width="100" src="/asset/2026-03-04_00-23.webp">
+
+[杜蕾斯（durex）玻尿酸避孕套 水润玻玻套18只男用女性快潮安全套套](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BATMJK1olXwEFUVdeCkwQAl8IGlsUXQ8BUl9UCkoXB19MRANLAjZbERscSkAJHTdNTwcKBlMdBgABFksWA24IElgTXA8AVV5ZFxJSXzI4QhBwPXlGETk4XTUJcDpxEz5zWW1DJFJROEonAG4KGFgXVA4FUG5tCEwnQgEIGFITXQUyVW5dDk0UB2sMHl4VXgcBZFldAXtMVgEMT1IRXANQB11UChhAM184GGsSXQ8WUiwcWl8RcV84G2sWbQYDVF9ZAUoWCmgNB1sXXQ4HXUJdDk0UB2sMGloVWg8CZFxcCU8eM1_WlutrXHJQFyogVwBwXQZgUzAQg4uyRTUkAEsXAH44TBl8InV2PwJcXhhnXTluEjtmIU90E1k-ZklTWxcNQwljVAdXHyQvYx5EX18NK1MVVQUy)
+
+￥64/18只
 
 ---
