@@ -18,6 +18,16 @@
 
 ---
 
+京东京造 莫代尔 内裤
+
+<img align="left" width="100" src="/asset/2026-03-03_11-27.webp">
+
+[京东京造【兰精莫代尔】60支男士内裤男抑菌大码平角冰](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BATMJK1olXQUDU1taC0seBF8IGloWVAYAV1pUC0gnRzBQRQQlBENHFRxWFlVPRjtUBABAQlRcCEBdCUoUCm8KGF8cXgUdDRsBVXt3RSdAQSVCNGRXHCUgdw5cAAkOGSlTUQoyVW5eCUkUAG0BE1wRbTYCU24LZksWAm4JE1wSXAUyVW5dDk0UB24BElwVXQIHZFldAXtMVgEMT1IRXANQB11UChhAM184GGsSXQ8WUiwcWl8RcV84G2sWbQYDVF9ZDEkQAWoMB1sUXAQFV0JdDk0UB24OHVMWXgUFZFxcCU8eM1_WlutuLUN9CFoDdR9kCzpVHCxHg4uyRSwtCE8QB344ciJyVVRBIR0DckJcWBpvfVpoVWcEUhUOZklueC0PcjtRJ1hfAygnTj0XR18NK1sXXQIy)
+
+￥45/3条
+
+---
+
 蕉内 莫代尔内裤
 
 <img align="left" width="100" src="/asset/2026-02-25_15-07.jpg">
