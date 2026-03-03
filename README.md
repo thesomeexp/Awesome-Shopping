@@ -1,7 +1,7 @@
 # Awesome-Shopping
 
 推荐好物(点击跳转): [衣物](#衣物), [个护健康](#个护健康), [居家日用](#居家日用), [收纳箱](#收纳箱), [厨具](#厨具), [家用电器](#家用电器)<br/>
-一般物品: [拖鞋](#拖鞋), [洗面奶](#洗面奶)
+一般物品: [拖鞋](#拖鞋), [洗面奶](#洗面奶), [手持小风扇](#手持小风扇)
 
 <div id="衣物"/>
 
@@ -719,5 +719,21 @@ Speedo 泳镜<br/>
 [旁氏（POND'S）洗面奶 米粹水润柔嫩洁面乳150g*2 氨基酸温和保湿](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAUEJK1olXwMCUV1UAE8RBl8IGloUXAIFVVtcCk4nRzBQRQQlBENHFRxWFlVPRjtUBABAQlRcCEBdCUoWAmsPGl4UXwMdDRsBVXsSSmphQhMLG2Z0Kj00WDAfQDFcaVJlUQoyVW5eCUkUAG0BE1wRbTYCU24OZg9IWypcB4Kl-NKj7YrkkJ-rvLqBgIyuyDYDZF5bDkgTB20KGl4dWQMyU15UOBBCbWtcEl8UWFRRV1dfWxwnM18LK1wVVBIEJh8PHE1lM18IK1glXQcCVVlZC04UAmsUG18XWgQKSF5bDkgTB2wBGloSWQIyVl9cDEInM7GFqyllXQ5mXTkDezViawhXXF_L0LYTKClUCkkTEl9eRT5hOXBeJl4ODRMVXWhWeQ5mW0F5FCYzCgNTSglzRwFpXWZmKAJcaEN_M2o4G1kVWjY)
 
 ￥39/150g*2支
+
+---
+
+<div id="手持小风扇"/>
+
+**手持小风扇:**
+
+几素 life7<br/>
+带数显, 大电池, 可手提, 可放桌面.<br/>
+缺点是贵, 重了.
+
+<img align="left" width="100" src="/asset/2026-03-04_00-00.webp">
+
+[几素高速节能手持小风扇usb迷你便携式折叠挂脖风扇轻音大风力轻音户外](https://uland.taobao.com/coupon/edetail?e=qtxpCM75r8%2BlhHvvyUNXZfh8CuWt5YH5OVuOuRD5gLJMmdsrkidbOWgpcJRl3wFwcV%2FlEyhmp8DQjENa3MwmoPaLYM7xdsEvAdZXOemSkCj3MwkpwxcWwnJMDd%2BKRYSDLpAatV6V7kpxwWxyDZyRNdgBE4XW2EqXaXOtHj5%2BtxsvR%2F1BNLrRCcLRW2d0xlmJICz0STAcMtvBtm88Mcs3uAUialgDtLo%2BQ9xUogD30tT2mzvc%2Bge7yPHD%2BxOfOoIknu1dh2WC27go6nIBvrmLTbcZelJt%2BzjyWp5c8lXghlnvsAIPzFMcVnB%2FC2wxfuZx%2BtoYm7Yk1smLz4BYa8%2Bd624XEKR%2BT0n3tVj9fvtxMzRVbrKqp4Yn8g%3D%3D&traceId=213e06ed17725543937686981e0f03&union_lens=lensId%3APUB%401772553844%40212b62b8_0e36_19cb4713830_d033%40026lV9euxmO01yRUHdjMda7Q%40eyJmbG9vcklkIjo4MDY3NCwiic3BtQiiI6Il9wb3J0YWxfdjJfcGFnZXNfcHJvbW9fZ29vZHNfaW5kZXhfaHRtIiiwiic3JjRmxvb3JJZCI6IjgwNjc0In0ie%3BtkScm%3AselectionPlaza_site_4358_0_0_0_3_1772553844864686960060%3Bscm%3A1007.30148.329090.pub_search-item_b7bcc2e1-b3be-4aad-a18a-1eb03fac379c_)
+
+￥99
 
 ---
