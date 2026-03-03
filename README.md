@@ -1,7 +1,7 @@
 # Awesome-Shopping
 
 推荐好物(点击跳转): [衣物](#衣物), [个护健康](#个护健康), [居家日用](#居家日用), [收纳箱](#收纳箱), [厨具](#厨具), [家用电器](#家用电器)<br/>
-一般物品: [拖鞋](#拖鞋)
+一般物品: [拖鞋](#拖鞋), [洗面奶](#洗面奶)
 
 <div id="衣物"/>
 
@@ -704,5 +704,20 @@ Speedo 泳镜<br/>
 [科柔（KENROLL）男女居家浴室防滑拖鞋四季休闲软底凉拖鞋](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAUkJK1olXw4GUFZcDEgWB18IGloUXQ8HVllcAE8nRzBQRQQlBENHFRxWFlVPRjtUBABAQlRcCEBdCUoWA2YNGVwUVQIdDRsBVUVTXDdWRCdBCF5SMQ4LBEh5AgEIKyluPmJUAAIBaEl1RDF3QRNJKlF4XQhRBHsWM2wJGVgWXw8KU1ptOEsQMy1mQQ9KHlhfCV1cC0snAl8IHV0WWQIBV19cAUMXM2gIEmtOCGgGAFdZCU5FUGwBGQhCbTYyV25aCEIDBR1JSU8TLzYyVG5eOEsWA24MGF0cXQUGSF5ZDUgXA3MIHV0WWQIBVFZbDUsUM20JGl8cbTbc2e41CD9XVRpMQh5KPWALCjkG1sanEh14ElwcXBcyLjcJUy1hQDRYXFxpL3RlLiskdRYSQjhNdVlvIEdxKxguaBteSB9KY15MPTYHZF5dDkgfMw)
 
 ￥79
+
+---
+
+<div id="洗面奶"/>
+
+**洗面奶:**
+
+旁氏 米粹 氨基酸 洗面奶<br/>
+量大管饱的一款, 如果不是出油比较多一般都可以不用洗面奶.
+
+<img align="left" width="100" src="/asset/2026-03-03_23-47.webp">
+
+[旁氏（POND'S）洗面奶 米粹水润柔嫩洁面乳150g*2 氨基酸温和保湿](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAUEJK1olXwMCUV1UAE8RBl8IGloUXAIFVVtcCk4nRzBQRQQlBENHFRxWFlVPRjtUBABAQlRcCEBdCUoWAmsPGl4UXwMdDRsBVXsSSmphQhMLG2Z0Kj00WDAfQDFcaVJlUQoyVW5eCUkUAG0BE1wRbTYCU24OZg9IWypcB4Kl-NKj7YrkkJ-rvLqBgIyuyDYDZF5bDkgTB20KGl4dWQMyU15UOBBCbWtcEl8UWFRRV1dfWxwnM18LK1wVVBIEJh8PHE1lM18IK1glXQcCVVlZC04UAmsUG18XWgQKSF5bDkgTB2wBGloSWQIyVl9cDEInM7GFqyllXQ5mXTkDezViawhXXF_L0LYTKClUCkkTEl9eRT5hOXBeJl4ODRMVXWhWeQ5mW0F5FCYzCgNTSglzRwFpXWZmKAJcaEN_M2o4G1kVWjY)
+
+￥39/150g*2支
 
 ---
