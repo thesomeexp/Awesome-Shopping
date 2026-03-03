@@ -1,7 +1,7 @@
 # Awesome-Shopping
-精选好物.
 
-点击跳转: [衣物](#衣物), [个护健康](#个护健康), [居家日用](#居家日用), [收纳箱](#收纳箱), [厨具](#厨具), [家用电器](#家用电器)
+推荐好物(点击跳转): [衣物](#衣物), [个护健康](#个护健康), [居家日用](#居家日用), [收纳箱](#收纳箱), [厨具](#厨具), [家用电器](#家用电器)<br/>
+一般物品: [衣物](#衣物2)
 
 <div id="衣物"/>
 
@@ -686,5 +686,21 @@ Speedo 泳镜<br/>
 [速比涛（Speedo）Edge精工游泳镜高清防水防雾泳镜游泳训练装备男女](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAUcJK1olXQMGU1ZUDE0WBF8IGloUWwQEUFZfCk0nRzBQRQQlBENHFRxWFlVPRjtUBABAQlRcCEBdCUoWBW0OH1MXXwAdDRsBVUVTXDdWRCdBCF5SMQ4LBEh5AgEIKztwAVkCCyA1aCMNfmlvWCYVKmVUID5RBHsWM2wJGVgWXw8KU1ptOEsQMzlmG1oUXAYDVlpZDnsWM28OHVgUXAcCUF5ZDEInBG8BKwBAMwJWXVpcDRlEAGYKSAwlbTYBZFldAV8RcS5aD11nbTYCZF1tCEoXAmgMGF4UWAMeVF9UDk8VH28OHVgUXAcDXFlfDkknAW4JH1IlbdiP5CEpczVQAWlfayZBL19BMAGDhfsGcR8IGVMXTDZdVgE4AA5tRzRNRQVUHAEDCz47fSkUaDlmGRBcFlx7DF4GUz0QRCRzTBxQbQMyVFxdAXs)
 
 ￥142
+
+---
+
+<div id="衣物2"/>
+
+**衣物:**
+
+科柔 防滑拖鞋<br/>
+优: 浴室拖鞋, 防滑好.
+缺: 不能日常穿，脚感略硬，走起路会响, 暴晒容易缩水.
+
+<img align="left" width="100" src="/asset/2026-03-03_18-12.webp">
+
+[速比涛（Speedo）Edge精工游泳镜高清防水防雾泳镜游泳训练装备男女](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAUkJK1olXw4GUFZcDEgWB18IGloUXQ8HVllcAE8nRzBQRQQlBENHFRxWFlVPRjtUBABAQlRcCEBdCUoWA2YNGVwUVQIdDRsBVUVTXDdWRCdBCF5SMQ4LBEh5AgEIKyluPmJUAAIBaEl1RDF3QRNJKlF4XQhRBHsWM2wJGVgWXw8KU1ptOEsQMy1mQQ9KHlhfCV1cC0snAl8IHV0WWQIBV19cAUMXM2gIEmtOCGgGAFdZCU5FUGwBGQhCbTYyV25aCEIDBR1JSU8TLzYyVG5eOEsWA24MGF0cXQUGSF5ZDUgXA3MIHV0WWQIBVFZbDUsUM20JGl8cbTbc2e41CD9XVRpMQh5KPWALCjkG1sanEh14ElwcXBcyLjcJUy1hQDRYXFxpL3RlLiskdRYSQjhNdVlvIEdxKxguaBteSB9KY15MPTYHZF5dDkgfMw)
+
+￥79
 
 ---
