@@ -566,6 +566,17 @@ ASVEL 调味罐<br/>
 
 ---
 
+小米 八插位 插排<br/>
+小米最热销的插排, 不用多说. 线材长度按需求购买.
+
+<img align="left" width="100" src="/asset/2026-03-05_23-25.jpg">
+
+[小米（MI）插线板8位总控开关插排插座插板一转多插座全长1.8m](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BASkJK1olXDYCVV9cDUoXC2sAGFolGVlaCgFtUQ5SQi0DBUVNGFJeSwUIFxlJX3EIGloUWAcCXFpVC0oIWipURmscVXYEERZVbS4JSwdUGyZ8NW9AHw0tBEcnAl8LGlkWXgQLXFlZOHsXBF9edVsUXAcDVVtdC0knAl8IHV0WWwUHU1peCkMXM2gIEmtOCGgGAFdZCU5FUGwBGQhCbTYyV25aCEIDBR1JSU8TLzYyVG5eOEsWA24MG1wQXAAKSF5YDU8SC3MIHV0WWwUHV1tZDEsSM20JGl8cbTbc2e4oCkJ0U25cSR5tJ0NyJygg1sanEhN_GVkdXBcyCFkcaBhnAm9aZwNjCk1iJiMlXDFMYGoJdVlIFnQBHT80cxludwtTQz9dGDYHZFlbCXs)
+
+￥30/1.8米
+
+---
+
 小米 电热水壶<br/>
 一体成型内胆.
 
