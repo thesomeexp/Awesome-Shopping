@@ -717,6 +717,17 @@ Speedo 泳镜<br/>
 
 ---
 
+得宝 抽纸<br/>
+4层, 除了贵其它都好, 建议优惠时囤.
+
+<img align="left" width="100" src="/asset/2026-03-08_17-29.webp">
+
+[得宝（TEMPO）一博同款 抽纸 真M码 无香4层90抽*18包 湿水不易破](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAT4JK1olXw4FUFZZDk8eBF8LGFodWQ4FZBoCUBVIMzZNXhpXVhgcDBsJVFRMVnBaRQcLXgUDXFpVD1RORjNVFR9KBVhdKAoIUBtyUzkEGDUVMwYyN1gETCtAZghqGx8RXkEGAC0vaS9hVWMEK1olXgcAV11fAUMQB184G1wlC2gCVV9cCUsWBm8JK1olXQAEV1ZaC08WAG0PGGsSXQ8yDwszDB8eB24NSQgWVARRA25tOEgnBG8BD11nHFQWUixtOEsnAF8IGlsUVAYEVV9aDFcXA20IE1gJXQAEV1ZZDE8SA2oBHWsXXAcGXW5t1sanaxxqUiwdWnxADD4DDwNHc7GFq0ppKg8GUFpMOA5DeSxYGR9KOVRKJhUiSUoTazJ8cFJtB2gADQVfdQ1AVjJsaytQCXN5JCNtDXsXB2cJG2s)
+
+￥3.5/90抽/包
+
+---
+
 <div id="洗面奶"/>
 
 **洗面奶:**
