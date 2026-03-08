@@ -1,7 +1,7 @@
 # Awesome-Shopping
 
 推荐好物(点击跳转): [衣物](#衣物), [个护健康](#个护健康), [居家日用](#居家日用), [收纳箱](#收纳箱), [厨具](#厨具), [家用电器](#家用电器)<br/>
-一般物品: [洗面奶](#洗面奶), [避孕套](#避孕套), [拖鞋](#拖鞋)
+一般物品: [抽纸](#抽纸) ,[洗面奶](#洗面奶), [拖鞋](#拖鞋)
 
 <div id="衣物"/>
 
@@ -704,6 +704,8 @@ Speedo 泳镜<br/>
 
 ## 一般物品
 
+<div id="抽纸"/>
+
 **抽纸**
 
 维达 超韧/锦韧 抽纸<br/>
@@ -743,8 +745,6 @@ Speedo 泳镜<br/>
 
 ---
 
-<div id="避孕套"/>
-
 **避孕套:**
 
 杜蕾斯 玻尿酸<br/>
@@ -771,5 +771,18 @@ Speedo 泳镜<br/>
 [科柔（KENROLL）男女居家浴室防滑拖鞋四季休闲软底凉拖鞋](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAUkJK1olXw4GUFZcDEgWB18IGloUXQ8HVllcAE8nRzBQRQQlBENHFRxWFlVPRjtUBABAQlRcCEBdCUoWA2YNGVwUVQIdDRsBVUVTXDdWRCdBCF5SMQ4LBEh5AgEIKyluPmJUAAIBaEl1RDF3QRNJKlF4XQhRBHsWM2wJGVgWXw8KU1ptOEsQMy1mQQ9KHlhfCV1cC0snAl8IHV0WWQIBV19cAUMXM2gIEmtOCGgGAFdZCU5FUGwBGQhCbTYyV25aCEIDBR1JSU8TLzYyVG5eOEsWA24MGF0cXQUGSF5ZDUgXA3MIHV0WWQIBVFZbDUsUM20JGl8cbTbc2e41CD9XVRpMQh5KPWALCjkG1sanEh14ElwcXBcyLjcJUy1hQDRYXFxpL3RlLiskdRYSQjhNdVlvIEdxKxguaBteSB9KY15MPTYHZF5dDkgfMw)
 
 ￥79
+
+---
+
+**手持风扇**
+
+几素 lite4<br/>
+5000mAh 大电池, 在你需要风的时候.
+
+<img align="left" width="100" src="/asset/2026-03-08_17-42.webp">
+
+[几素小风扇手持便携式随身小型迷你充电电扇学生宿舍手拿usb电风扇](https://s.click.taobao.com/t?e=m%3D2%26s%3D%2BKl6khqk2dhw4vFB6t2Z2ueEDrYVVa64YUrQeSeIhnK53hKxp7mNFl906SyIHsHUbUWXG%2B7TuSgFAvjU8V96Zug8%2BWZ7mGwcnYphurpnMR4Al5wSPB27UtBH5tSNdIpA8mL8HhJ3EdVrH4ks4QyiY4z4rjZDGVMALgWCtvB%2FzaxQXey5gKr4U6LWMw3EOEsyei2B3s1dHL%2Fc6mknC3l62Glv%2BoaaNeD6HL4RNyM3lrw%2FSwUojFK906SbRXhYLdMyMQjs7HLiEkFBsXECorBcOuraIkJlkCR7QsSSpN50Tf30oRXWDqY30GHQ7dFzkf%2Bmu1hwwTZ58uhN9IAoGC5JIif1Wg1FWrcP&union_lens=lensId%3APUB%401772962848%40210820e1_0e17_19cccd220ae_8a28%40026ENuVyfqTb8D5kyvNT4eXD%40eyJmbG9vcklkIjo4MDY3NCwiic3BtQiiI6Il9wb3J0YWxfdjJfcGFnZXNfcHJvbW9fZ29vZHNfaW5kZXhfaHRtIiiwiic3JjRmxvb3JJZCI6IjgwNjc0In0ie%3BtkScm%3AselectionPlaza_site_4358_0_0_0_2_1772962849022686960060%3Bscm%3A1007.30148.329090.pub_search-item_7d589703-16b7-4949-b9ff-0dcf4760faf1_)
+
+￥78
 
 ---
