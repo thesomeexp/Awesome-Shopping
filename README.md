@@ -476,7 +476,7 @@ SAGE 切菜板<br/>
 ---
 
 双枪纹理合金筷<br/>
-主流的塑料合金筷, 比起木筷, 竹筷, 塑料筷更不容易发霉变形.<br/>
+主流的 PPS塑料+玻璃纤维 筷, 比起木筷, 竹筷, 塑料筷更不容易发霉变形.<br/>
 如果需要耐高温, 油炸, 则需选用更耐高温的[不锈钢筷子](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAUYJK1olXg4AXV5eAU0UM28JGl0RXwMHU11cAEMXMytXQwVKbV9HER8fA1UJWypcR0ROCBlQCgJDCEoWBWsKHl4SXgcKXF5CUQ5LXmFMRANLAnpWAQYNbRtBD2xmGjUVbXJqFAAKURNlZi9ATTpGWFtVAVYcQR0bD18JK1gUXwUBVldVD08nM28PKxp7XQUDUl9bOEonA2kOGV4cWQQFU1ldC3sQA2Y4QA57WVILUF9YWhgUCm1bTGslbQUyU15UHE1lQj0cHSklbQYyV25dCUsWB2oNHFsRWBoCVVteCEMLA2kOGV4cWA4KVVxaD3sVAm4MEmslg4uyLCkVdAhgQWpgXSR9GUZgK4DQuFprZ2sIGl4EbWUDDjoEXC5kYh1gXVlvBXkAHC4kSz9OXgEKZTpvDXQCUBk8fA5BSDsOcw4lWDYFVFZaOA), 推荐方筷而不是圆筷. 大概70/10双.
 
 <img align="left" width="100" src="/asset/2024-08-30_16-30-45.webp">
