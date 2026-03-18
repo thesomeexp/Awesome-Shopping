@@ -1,7 +1,7 @@
 # Awesome-Shopping
 
 推荐好物(点击跳转): [衣物](#衣物), [个护健康](#个护健康), [居家日用](#居家日用), [收纳箱](#收纳箱), [厨具](#厨具), [家用电器](#家用电器)<br/>
-一般物品: [抽纸](#抽纸) ,[洗面奶](#洗面奶), [拖鞋](#拖鞋), [牛奶](#牛奶)
+一般物品: [抽纸](#抽纸) ,[洗面奶](#洗面奶), [拖鞋](#拖鞋), [牛奶](#牛奶), [茶叶](#茶叶)
 
 <div id="衣物"/>
 
@@ -802,5 +802,20 @@ Y型结构用于将牙线一直撑直, 需要适应使用习惯.
 [安佳（Anchor）3.6g蛋白质 全脂牛奶 250ml*24盒 新西兰原装进口草饲](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BATUJK1olXDYCVVhcAU4VMytXQwVKbV9HER8fA1UJWypcR0ROCBlQCgJDCEoRAmYNGURMGFpfWhoCUBVIfztdQwtwDVAOVzBcZksnCgkLQxtMOGdgLyAOTx5PXxF1Xg5zPQoOZF9tC0oVAGwKElMSWTYyVFltXiUXAm4JGlsQWA8FZF9tCE0RAWYJGV8WXAIAVG5aCEInWDpmHw8cWQcHBg1eAUlEVF84K1glWgYLQFgvSRkDBR04K1slXjYCVV5cDE4SBG8IH0cVWA8GVltBCE0RAWYJGVgXWgAKVW5fCUoTCl84xdalInN5MVZbYRdldzgKSwRjPNiP5E8hf0ITB2sZKwVDPAECBiAFSUpUXjMMElxMP2JZDSw0SSUVQCpaXDBoOUBDXFYDXhxAWDw4HmsXWgABVW4)
 
 ￥88/24小盒
+
+---
+
+<div id="茶叶"/>
+
+**茶叶**
+
+立顿 茶包<br/>
+户圣推荐, 不用多说.
+
+<img align="left" width="100" src="/asset/2026-03-18_18-08.webp">
+
+[立顿组合茶叶精选红茶绿茶茉莉花茶乌龙茶等6种口味80包153g盒装](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAVAJK1olXw4GXVlYDkgVBl8IGloUXAcLVF9bDE4nRzBQRQQlBENHFRxWFlVPRjtUBABAQlRcCEBdCUoWAm4BG1oTWQMdDRsBVUVTXDdWRCdBCF5SMQ4LBEh5AwEIK1t2OUF2FV0_azBxeDl6fQFKBFhjKAhRBHsWM2wJGVgWXw8KU1ptOEsQMzlmG1oUXAcHVV9YCiVLQDFJSQddbQcyVFhbCkIUCmoMGVMXVDYFVFdtUx55BzsBH1oQD1UBXVwOX3snM2w4HFscSQBwFQxJDjknM284GGsVXAYDU11YC0oRA3MIGlkSXAIeVFhbCkIUCmoKHF0VXjYAVV9ZAXsn3eK4b19LWWQGDVcbfioWdw9dXoWY7Rd-I1xfAEoGM29uRhATJgEKAlk8dBZRWCh9XSVuW351EjBfbSNUeSlRRxBDHFJqBlgoVC8nBl8KHF0WXDY)
+
+￥60/80小包(组合)
 
 ---
