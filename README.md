@@ -1,7 +1,7 @@
 # Awesome-Shopping
 
 推荐好物(点击跳转): [衣物](#衣物), [个护健康](#个护健康), [居家日用](#居家日用), [收纳箱](#收纳箱), [厨具](#厨具), [家用电器](#家用电器)<br/>
-一般物品: [抽纸](#抽纸) ,[洗面奶](#洗面奶), [拖鞋](#拖鞋)
+一般物品: [抽纸](#抽纸) ,[洗面奶](#洗面奶), [拖鞋](#拖鞋), [牛奶](#牛奶)
 
 <div id="衣物"/>
 
@@ -786,5 +786,21 @@ Y型结构用于将牙线一直撑直, 需要适应使用习惯.
 [几素小风扇手持便携式随身小型迷你充电电扇学生宿舍手拿usb电风扇](https://s.click.taobao.com/t?e=m%3D2%26s%3D%2BKl6khqk2dhw4vFB6t2Z2ueEDrYVVa64YUrQeSeIhnK53hKxp7mNFl906SyIHsHUbUWXG%2B7TuSgFAvjU8V96Zug8%2BWZ7mGwcnYphurpnMR4Al5wSPB27UtBH5tSNdIpA8mL8HhJ3EdVrH4ks4QyiY4z4rjZDGVMALgWCtvB%2FzaxQXey5gKr4U6LWMw3EOEsyei2B3s1dHL%2Fc6mknC3l62Glv%2BoaaNeD6HL4RNyM3lrw%2FSwUojFK906SbRXhYLdMyMQjs7HLiEkFBsXECorBcOuraIkJlkCR7QsSSpN50Tf30oRXWDqY30GHQ7dFzkf%2Bmu1hwwTZ58uhN9IAoGC5JIif1Wg1FWrcP&union_lens=lensId%3APUB%401772962848%40210820e1_0e17_19cccd220ae_8a28%40026ENuVyfqTb8D5kyvNT4eXD%40eyJmbG9vcklkIjo4MDY3NCwiic3BtQiiI6Il9wb3J0YWxfdjJfcGFnZXNfcHJvbW9fZ29vZHNfaW5kZXhfaHRtIiiwiic3JjRmxvb3JJZCI6IjgwNjc0In0ie%3BtkScm%3AselectionPlaza_site_4358_0_0_0_2_1772962849022686960060%3Bscm%3A1007.30148.329090.pub_search-item_7d589703-16b7-4949-b9ff-0dcf4760faf1_)
 
 ￥78
+
+---
+
+<div id="牛奶"/>
+
+**牛奶:**
+
+安佳 全脂牛奶<br/>
+户圣推荐, 进口全脂牛奶.<br/>
+乳糖不耐受人士推荐[无乳糖牛奶](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BAUgJK1olXw4EUlhfAUgXAF8IGloQWAYLUlpdDUgRB19MRANLAjZbERscSkAJHTdNTwcKBlMdBgABFksWAmoNG1ITWQYHV1hZFxJSXzIGXwRNA1l-AAsFWC5HVWMLdVp7XTZ0PzYLbU98fAxYAQVxCFp0SgYtdChnD2M4GmsWXAQBV1xUAEwTM18IHGtUMwYCUF9VCXsWM28OHVkcXAQHXFtdC04nBG8BKwBAMwJWXVpcDRlEAGYKSAwlbTYBZFldAV8RcS5aD11nbTYCZF1tCEoXAmgMGF4WWwIeVF9cDEsXH28OHVkcXAQHUlZUD0gnAW4JH1IlbdiP5DxZaA8TADAATAFtHQ5XIxiDhfsGfxgMHFIVTDYGUi4NQBVXBw1QRABjJk1jUyVeXU1ICwxmGQBPVX18FwcJahRlSyt0e15gbQMyVllbC0on).
+
+<img align="left" width="100" src="/asset/2026-03-18_11-07.webp">
+
+[安佳（Anchor）3.6g蛋白质 全脂牛奶 250ml*24盒 新西兰原装进口草饲](https://union-click.jd.com/jdc?e=618%7Cpc%7C&p=JF8BATUJK1olXDYCVVhcAU4VMytXQwVKbV9HER8fA1UJWypcR0ROCBlQCgJDCEoRAmYNGURMGFpfWhoCUBVIfztdQwtwDVAOVzBcZksnCgkLQxtMOGdgLyAOTx5PXxF1Xg5zPQoOZF9tC0oVAGwKElMSWTYyVFltXiUXAm4JGlsQWA8FZF9tCE0RAWYJGV8WXAIAVG5aCEInWDpmHw8cWQcHBg1eAUlEVF84K1glWgYLQFgvSRkDBR04K1slXjYCVV5cDE4SBG8IH0cVWA8GVltBCE0RAWYJGVgXWgAKVW5fCUoTCl84xdalInN5MVZbYRdldzgKSwRjPNiP5E8hf0ITB2sZKwVDPAECBiAFSUpUXjMMElxMP2JZDSw0SSUVQCpaXDBoOUBDXFYDXhxAWDw4HmsXWgABVW4)
+
+￥88/24小盒
 
 ---
