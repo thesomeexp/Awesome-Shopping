@@ -420,9 +420,9 @@ takagi 花洒<br/>
 
 <img align="left" width="100" src="/asset/2026-02-25_12-07.jpg">
 
-安琴天山棉麻百纳箱66升可水洗收纳箱棉被收纳袋衣服装羽绒服专用
+[安琴天山棉麻百纳箱66升可水洗收纳箱棉被收纳袋衣服装羽绒服专用](https://xhslink.com/m/MyLWtipecH)
 
-￥42/66L
+￥60/66L
 
 ---
 
