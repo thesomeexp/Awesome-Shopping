@@ -204,9 +204,9 @@ IKEA 宜家 BRUKSVARA 布瓦拉 记忆枕<br/>
 
 <img align="left" width="100" src="/asset/2026-02-25_15-25.jpg">
 
-IKEA宜家BRUKSVARA布瓦拉人体工学枕记忆海绵枕护颈椎助睡眠枕头
+[IKEA宜家BRUKSVARA布瓦拉人体工学枕记忆海绵枕护颈椎助睡眠枕头](https://uland.taobao.com/coupon/edetail?e=lamApYJOu2%2BlhHvvyUNXZfh8CuWt5YH5OVuOuRD5gLJMmdsrkidbOUV9IBA4kmjLvLIWtjF9uuo8lul06I%2BD7QfADBMbv9H7XFHQoHBIqZLO46DCUAZmvxwI4nE1WyURZG4tAXLVCFy4bVlo0QJT9KkZQi7JkfSgQ9QCyZlHKF%2BOOiX2Bc1NdeBam0%2BwYTjX0K%2Bd2C9RNx%2FK%2FkUHLifSs7niWF9jicFOo02EkWgRm1LQHYnBV6egeLea1xV7%2BxAwBEoaIN4Ose5EUZzstTQAGqT23lNjNxtWNkJ0G9dkBnG1rTgGWDE90ohaoyw4w5GPIUCNb0OEFWFZE%2Frq7N6jtg%3D%3D&traceId=213e022e17738995549024178e0c79&union_lens=lensId%3APUB%401773899507%400b5202b7_0d9a_19d04a667d2_39fd%4002ikDMIleFviKzqhryNMEIn%40eyJmbG9vcklkIjo4MDY3NCwiic3BtQiiI6Il9wb3J0YWxfdjJfcGFnZXNfcHJvbW9fZ29vZHNfaW5kZXhfaHRtIiiwiic3JjRmxvb3JJZCI6IjgwNjc0In0ie%3BtkScm%3AselectionPlaza_site_4358_0_0_0_6_1773899507734686960060%3Bscm%3A1007.30148.329090.pub_search-item_bcad8c33-529a-456b-8875-e7940ef90f0f_)
 
-￥49
+￥60
 
 ---
 
