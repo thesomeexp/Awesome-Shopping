@@ -525,9 +525,9 @@ ASVEL 调味罐<br/>
 
 <img align="left" width="100" src="/asset/2026-02-25_12-36.jpg">
 
-拼多多 可调节垃圾桶垃圾桶家用纸桶卫生间厨房专用加大加厚
+[可调节垃圾桶垃圾桶家用纸桶卫生间厨房专用加大加厚](https://xhslink.com/m/2EGIeoDNiIJ)
 
-￥9
+￥25
 
 ---
 
