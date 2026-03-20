@@ -476,6 +476,17 @@ SAGE 切菜板<br/>
 
 ---
 
+宜家 尼龙刷<br/>
+不容易伤不粘锅涂层搭档. 如果怕软海绵发霉的话.
+
+<img align="left" width="100" src="/asset/2026-03-20_16-00.webp">
+
+[宜家代购安达厨房用刷洗锅碟碗刷耐用不掉毛清洁刷子正品](https://s.click.taobao.com/t?e=m%3D2%26s%3DHOuBylHWez1w4vFB6t2Z2ueEDrYVVa64g3vZOarmkFi53hKxp7mNFl906SyIHsHUHAZBOrH1mIcFAvjU8V96Zug8%2BWZ7mGwcnYphurpnMR4Al5wSPB27UtBH5tSNdIpA8mL8HhJ3EdVrH4ks4QyiY4z4rjZDGVMAXH5ckVhmG6QlU%2BGYOOENiTZaOxVLEWvPvlIGxvhQpyYT71LmkHrC4RapuLQBbMBYayvZ4CLVQR1R1azi%2FnIojqM70AliNjwJcn7ARWQ6ocV0hb0k2TPv%2BG5KHOQOD12OXZLig8IYqoR7ZxJDtMr7vMYl7w3%2FA2kb&union_lens=lensId%3APUB%401773996899%40212b9328_0d38_19d0a747c8e_5ef4%40021xcFpVaO65Xgv9d1JhsH3A%40eyJmbG9vcklkIjo4MDY3NCwiic3BtQiiI6Il9wb3J0YWxfdjJfcGFnZXNfcHJvbW9fZ29vZHNfaW5kZXhfaHRtIiiwiic3JjRmxvb3JJZCI6IjgwNjc0In0ie%3BtkScm%3AselectionPlaza_site_4358_0_0_0_1_1773996899547686960060%3Bscm%3A1007.30148.329090.pub_search-item_d894311c-e0df-404a-860a-17fe4e28f752_)
+
+￥3/个
+
+---
+
 双枪纹理合金筷<br/>
 主流的 PPS塑料+玻璃纤维 筷, 比起木筷, 竹筷, 塑料筷更不容易发霉变形.<br/>
 但不适用于高温油炸.
